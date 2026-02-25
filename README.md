@@ -6,6 +6,6 @@
   
 ![](https://media1.tenor.com/m/8bxmkCa7mTUAAAAd/%D9%82%D9%85%D8%B1.gif) 
 
-* You can contact me: 
+You can contact me: 
 pauvelsegiovana@gmail.com
 
