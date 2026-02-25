@@ -5,6 +5,7 @@
 ### I'm learning Python, and will be learning C and Javascript! Also have knowledge of C# and the lovebirds HTML/CSS.
 
 ![](https://tenor.com/pt-BR/view/قمر-gif-17418910228073388341) 
+![](https://media.tenor.com/tJyK18R2CUMAAAAC/billie-eilish.gif) 
 
 ### U can contact me: 
 pauvelsegiovana@gmail.com
