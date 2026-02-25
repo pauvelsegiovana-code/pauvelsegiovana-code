@@ -5,6 +5,7 @@
 - I'm learning Python, and will be learning C and Javascript! Also have knowledge of C# and the lovebirds HTML/CSS.
   
 ![](https://media1.tenor.com/m/8bxmkCa7mTUAAAAd/%D9%82%D9%85%D8%B1.gif) 
--- You can contact me: 
+
+* You can contact me: 
 pauvelsegiovana@gmail.com
 
